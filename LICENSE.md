@@ -1,4 +1,4 @@
-# 
+# Enhance GIMP for PC | GIMP for Windows with GIMP for PC | GIMP for Windows professional Extension: HDR-editing & liquify-tool, the #1 extension. Includes HDR-editing and
 
 
 
